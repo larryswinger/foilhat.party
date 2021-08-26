@@ -1,3 +1,4 @@
 # tinfoilhat-party
 
-Test. Test. Test.
+This September 11th will mark the 20th anniversary of the deadliest attack on American soil. There's something odd about this event. It's been presented as a terrorist attack committed by al-Qaida, but anyone who does research will find evidence of government involvement. Mentioning this is systematically being met with ridicule. It's portrayed as if only a handful of cooks have such beliefs. The reality is that only a fraction of the people believe the official narrative, and that many are convinced the government was involved. This goes unnoticed, because there's a barrier to speaking out about something so controversial. We want to take down that barrier and raise awareness about this topic. We want to show that ordinary people hold these convictions. We are not afraid to be ridiculed. If this message rings true to you, we invite you to take part by wearing an aluminum foil hat on 9/11, as well as the days leading up to it, and to share pictures and footage with us and on social media.
+
