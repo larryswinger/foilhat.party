@@ -1,11 +1,11 @@
 
-**On 9/11, truth seekers unite! We will wear foil hats to raise awareness about the shortcomings of the official narrative and the profound implications, including a perpetual global "war on terror".**
+**On 9/11, truth seekers unite! We will wear foil hats to raise awareness about the shortcomings of the official narrative and the profound implications, such as the perpetual global "war on terror".**
 
 We are proud freethinkers.
 
 We are ordinary citizens who hold and share convictions.  
 
-Let's make 9/11 a day when truth and justice prevail.
+#FoilHatDay
 
 ![](https://s3.amazonaws.com/37assets/svn/765-default-avatar.png)
 
