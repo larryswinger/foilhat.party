@@ -1,5 +1,5 @@
 
-**On 9/11, we will wear foil hats to raise awareness about the shortcomings of the official narrative and what the implications are. We will share pictures on social media. Skeptics can recognize each other on the street.**
+**On 9/11, truth seekers unify! We will wear foil hats to raise awareness about the shortcomings of the official narrative and the profound implications, including a perpetual global war on "terror".**
 
 We are proud freethinkers.
 
@@ -25,11 +25,17 @@ September 11th 2021, marks the 20th anniversary of the deadliest attack on Ameri
 
 The reality is that only a fraction of the population believe the "official narrative", and many are convinced that key government insiders were and are involved in the event and ongoing coverup.  **FoilHat.Party** hopes to help remove the taboo barriers blocking critical questions, to raise awareness about global skepticism, and to encourage people to speak out about controversial topics.
 
-### How may I upload my photo/video?
+### How can I partake?
 
 If this message rings true to you, we invite you to wear foil on your hat on 9/11 and/or submit your photo/video in your foil hat.
 
-You may emulate the example photos above or simply do your own thing.  Photos/videos do not need to be taken exclusively on 9/11.  The only request is that there be a hat with foil in the photo.
+You may emulate the example photos above or simply do your own thing. Photos/videos do not need to be taken exclusively on 9/11.  The only request is that there be a hat with foil in the photo.
+
+There are two places where we ask you to share your footage:
+
+* On social media with the hashtag #FoilHatDay.
+
+* On our sister site Rabbit Hole [in its dedicated thread](http://ynpxg2vmxftysze4cxqxao4ylv22vtfptxjk6zwlkilzki4avn23miqd.onion/viewtopic.php?f=17&t=58&p=161#p161). This is a forum for skeptics.
 
 We hope to accumulate enough photos/videos to utilize in media projects, open to anyone anywhere, welcome to make their own media project.  Our hope is this **FoilHat.Party** project may evolve over years to come.
 
