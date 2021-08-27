@@ -1,11 +1,13 @@
 
-**On 9/11, truth seekers unify! We will wear foil hats to raise awareness about the shortcomings of the official narrative and the profound implications, including a perpetual global war on "terror".**
+**On 9/11, truth seekers unite! We will wear foil hats to raise awareness about the shortcomings of the official narrative and the profound implications, including a perpetual global "war on terror".**
 
 We are proud freethinkers.
 
 We are ordinary citizens who hold and share convictions.  
 
 Let's make 9/11 a day when truth and justice prevail.
+
+![](https://upload.wikimedia.org/wikipedia/commons/5/59/Bl%C3%BChmaluhut.jpg) ![](https://upload.wikimedia.org/wikipedia/commons/e/ef/Man_in_a_tin_foil_hat.jpg)
 
 ### What are **FoilHat.Party** and **Foil Hat Day**?
 
@@ -29,13 +31,13 @@ The reality is that only a fraction of the population believe the "official narr
 
 If this message rings true to you, we invite you to wear foil on your hat on 9/11 and/or submit your photo/video in your foil hat.
 
-You may emulate the example photos above or simply do your own thing. Photos/videos do not need to be taken exclusively on 9/11.  The only request is that there be a hat with foil in the photo.
+You may emulate the example photos above or simply do your own thing. Photos/videos do not need to be taken exclusively on September 11th.  The only request is that there be a hat with foil in the photo.
 
 There are two places where we ask you to share your footage:
 
 * On social media with the hashtag #FoilHatDay.
 
-* On our sister site Rabbit Hole [in its dedicated thread](http://ynpxg2vmxftysze4cxqxao4ylv22vtfptxjk6zwlkilzki4avn23miqd.onion/viewtopic.php?f=17&t=58&p=161#p161). This is a forum for skeptics.
+* On our sister site Rabbit Hole [in its dedicated thread](https://ynpxg2vmxftysze4cxqxao4ylv22vtfptxjk6zwlkilzki4avn23miqd.onion.ly/viewtopic.php?f=17&t=58&p=161#p161). This is a forum for skeptics.
 
 We hope to accumulate enough photos/videos to utilize in media projects, open to anyone anywhere, welcome to make their own media project.  Our hope is this **FoilHat.Party** project may evolve over years to come.
 
