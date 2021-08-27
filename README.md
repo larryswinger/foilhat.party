@@ -1,23 +1,27 @@
 
-**September 11th 2021 marks the 20th anniversary of the deadliest attack on American soil. We invite you to add foil to your hat to signal that you know the truth about that day, and that you aren't afraid of ridicule. If we do this en masse, and share pictures on social media, we will raise awareness about something everyone should know. It will be an opportunity to inform people. We also hope to connect skeptics and the conspiracy aware by having them recognize each other on the streets. Let's make 9/11 a day when truth and justice prevail.**
+**On 9/11, we will wear foil hats to raise awareness about the shortcomings of the official narrative and what the implications are. We will share pictures on social media. Skeptics can recognize each other on the street.**
 
-We are proud free-thinkers and truth-seekers.
+We are proud freethinkers.
 
-We are ordinary citizens who hold and share these convictions.  
+We are ordinary citizens who hold and share convictions.  
+
+Let's make 9/11 a day when truth and justice prevail.
 
 ### What are **FoilHat.Party** and **Foil Hat Day**?
 
 **FoilHat.Party** has three main objectives:
 
-* Declare 9/11 a **Foil Hat Day**.  We encourage everyone around the world to add foil to their hat and wear it proudly all day long, every September 11th.
+* Declare 9/11 a **Foil Hat Day**.  We encourage everyone around the world to make a hat out of foil or add foil to their hat and wear it proudly all day long, every September 11th.
 
-* Unify all people with questions, all skeptics, and all conspiracy analysts together, regardless of their differences of opinions, great and small, to simply agree with this statement: **The authorities, experts, governments, and corporate media's "official narrative" is NOT at all accurate.**
+* Share pictures on social media with the hashtag #FoilHatDay.
+
+* Unify all people with questions, all skeptics, and all conspiracy analysts together, regardless of their differences of opinions, great and small, to express a simple statement: **The "official narrative" spouted by authorities, experts, governments, and the corporate media is NOT at all accurate.**
 
 * Collect and openly share photo/video portraits of foiled hat people from around the world. These images can then be utilized for any purpose, including promotion of **Foil Hat Day** and documentaries about skepticism. 
 
 ### Why is Foil Hat Day on September 11th?
 
-Endless questions about 9/11 remain unanswered and taboo. The attacks are presented as the unquestionable foundations for the global "War On Terror."  The corporate media systematically meets all skepticism with ridicule, portraying any doubts as crazy beliefs held by "conspiracy theorists", a term weaponized by the CIA after JFK was assassinated.
+September 11th 2021, marks the 20th anniversary of the deadliest attack on American soil. Endless questions remain unanswered and taboo about this singular event that is presented as the unquestionable foundations for the global "War On Terror." The corporate media systematically meets all skepticism with ridicule, portraying any doubts as crazy beliefs held by "conspiracy theories", a term weaponized by the CIA after JFK was assassinated.
 
 The reality is that only a fraction of the population believe the "official narrative", and many are convinced that key government insiders were and are involved in the event and ongoing coverup.  **FoilHat.Party** hopes to help remove the taboo barriers blocking critical questions, to raise awareness about global skepticism, and to encourage people to speak out about controversial topics.
 
