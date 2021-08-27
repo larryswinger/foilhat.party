@@ -7,7 +7,9 @@ We are ordinary citizens who hold and share convictions.
 
 Let's make 9/11 a day when truth and justice prevail.
 
-![](https://upload.wikimedia.org/wikipedia/commons/5/59/Bl%C3%BChmaluhut.jpg) ![](https://upload.wikimedia.org/wikipedia/commons/e/ef/Man_in_a_tin_foil_hat.jpg)
+![](https://s3.amazonaws.com/37assets/svn/765-default-avatar.png)
+
+(Slideshow coming soon.)
 
 ### What are **FoilHat.Party** and **Foil Hat Day**?
 
