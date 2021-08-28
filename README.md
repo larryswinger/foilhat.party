@@ -35,14 +35,13 @@ You may emulate the example photos above or simply do your own thing. Photos/vid
 
 We hope to accumulate photos/videos to utilize in media projects, open to anyone, welcome to make their own media project.  Our hope is this **FoilHat.Party** project may evolve over years to come.
 
-There are two places where we ask you to share your footage:
+We ask you to share your footage either:
 
 * On social media with the hashtag #FoilHatDay.
 
 * On our sister site Rabbit Hole [in its dedicated thread](https://ynpxg2vmxftysze4cxqxao4ylv22vtfptxjk6zwlkilzki4avn23miqd.onion.ly/viewtopic.php?f=17&t=58&p=161#p161). This is a forum for skeptics.
 
 * On our photo / video gallery, which will be accessible from this website.
-
 
 `More details coming soon.`
 
@@ -63,6 +62,10 @@ Anyone with videos or photos from that event can please submit their content by 
 * Upload the footage somewhere. We recommend [anonfiles.com](https://anonfiles.com). You can also use Google Drive, Dropbox, or [Mega.nz](https://mega.nz/).
 
 * Send an email to larryswinger(at)armormail.net with "Windsor Freedom Rally" as the subject. Include a link to the footage inside the email.
+
+* If you're only sharing a few photos, you can include them as attachments to the email instead.
+
+* If you're sharing a big number of photos, it's easier to upload them as a single archive. Put them all in a folder, right click the folder and select "Compress". A zip file will be created which you can upload to any of the services listed above.
 
 These videos and images will all be shared online in a 100% free/libré and open-source gallery (details coming soon) and anyone may create and share:
 
