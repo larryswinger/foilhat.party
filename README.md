@@ -1,9 +1,9 @@
 
-**On 9/11, truth seekers unite! We will wear foil hats to raise awareness about the shortcomings of the official narrative and the profound implications, such as the perpetual global "war on terror".**
+**On 9/11, truth seekers unite! We will wear foil hats to raise awareness about the shortcomings of the official 9/11 narrative and the profound implications, such as the perpetual global "war on terror".**
 
 We are proud freethinkers.
 
-We are ordinary citizens who hold and share convictions.  
+We are ordinary citizens with convictions and courage.
 
 #FoilHatDay
 
@@ -17,11 +17,9 @@ We are ordinary citizens who hold and share convictions.
 
 * Declare 9/11 a **Foil Hat Day**.  We encourage everyone around the world to make a hat out of foil or add foil to their hat and wear it proudly all day long, every September 11th.
 
-* Share pictures on social media with the hashtag #FoilHatDay.
+* Unite all people with questions, all skeptics, and all conspiracy analysts together, regardless of their differences of opinions, great and small, to agree on this simple statement: **The "official narrative" from authorities, experts, governments, and the corporate media is NOT at all accurate.**
 
-* Unify all people with questions, all skeptics, and all conspiracy analysts together, regardless of their differences of opinions, great and small, to express a simple statement: **The "official narrative" spouted by authorities, experts, governments, and the corporate media is NOT at all accurate.**
-
-* Collect and openly share photo/video portraits of foiled hat people from around the world. These images can then be utilized for any purpose, including promotion of **Foil Hat Day** and documentaries about skepticism. 
+* Collect and openly share photo/video portraits of foiled hat people from around the world. These images can then be utilized for any purpose, including promotion of **Foil Hat Day** and documentaries about skepticism. The hashtag used for sharing footage is #FoilHatDay.
 
 ### Why is Foil Hat Day on September 11th?
 
@@ -40,6 +38,8 @@ There are two places where we ask you to share your footage:
 * On social media with the hashtag #FoilHatDay.
 
 * On our sister site Rabbit Hole [in its dedicated thread](https://ynpxg2vmxftysze4cxqxao4ylv22vtfptxjk6zwlkilzki4avn23miqd.onion.ly/viewtopic.php?f=17&t=58&p=161#p161). This is a forum for skeptics.
+
+* On our photo / video gallery, which we will place on this website.
 
 We hope to accumulate enough photos/videos to utilize in media projects, open to anyone anywhere, welcome to make their own media project.  Our hope is this **FoilHat.Party** project may evolve over years to come.
 
