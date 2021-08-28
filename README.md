@@ -60,7 +60,7 @@ At the Freedom Rally in Windsor, Canada on August 28, 2021, people posed for foi
 
 Anyone with videos or photos from that event can please submit their content by following these steps:
 
-* Upload the footage somewhere. We recommend [anonfiles.com](https://anonfiles.com). You can also use Google Drive.
+* Upload the footage somewhere. We recommend [anonfiles.com](https://anonfiles.com). You can also use Google Drive, Dropbox, or [Mega.nz](https://mega.nz/).
 
 * Send an email to larryswinger(at)armormail.net with "Windsor Freedom Rally" as the subject. Include a link to the footage inside the email.
 
