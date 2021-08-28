@@ -27,11 +27,13 @@ September 11th 2021, marks the 20th anniversary of the deadliest attack on Ameri
 
 The reality is that only a fraction of the population believe the "official narrative", and many are convinced that key government insiders were and are involved in the event and ongoing coverup.  **FoilHat.Party** hopes to help remove the taboo barriers blocking critical questions, to raise awareness about global skepticism, and to encourage people to speak out about controversial topics.
 
-### How can I partake?
+### How can I participate?
 
 If this message rings true to you, we invite you to wear foil on your hat on 9/11 and/or submit your photo/video in your foil hat.
 
 You may emulate the example photos above or simply do your own thing. Photos/videos do not need to be taken exclusively on September 11th.  The only request is that there be a hat with foil in the photo.
+
+We hope to accumulate photos/videos to utilize in media projects, open to anyone, welcome to make their own media project.  Our hope is this **FoilHat.Party** project may evolve over years to come.
 
 There are two places where we ask you to share your footage:
 
@@ -39,9 +41,8 @@ There are two places where we ask you to share your footage:
 
 * On our sister site Rabbit Hole [in its dedicated thread](https://ynpxg2vmxftysze4cxqxao4ylv22vtfptxjk6zwlkilzki4avn23miqd.onion.ly/viewtopic.php?f=17&t=58&p=161#p161). This is a forum for skeptics.
 
-* On our photo / video gallery, which we will place on this website.
+* On our photo / video gallery, which will be accessible from this website.
 
-We hope to accumulate enough photos/videos to utilize in media projects, open to anyone anywhere, welcome to make their own media project.  Our hope is this **FoilHat.Party** project may evolve over years to come.
 
 `More details coming soon.`
 
@@ -55,21 +56,13 @@ We hope to accumulate enough photos/videos to utilize in media projects, open to
 
 ### Windsor's Freedom Rally
 
-At the Freedom Rally in Windsor, Canada on August 28, 2021, people posed for foil hat portrait and are the catalyst seeding this global project.  Their images, as in the slideshow above, are the first added to the archive.
+At the Freedom Rally in Windsor, Canada on August 28, 2021, people posed for foil hat portraits. They are the catalyst seeding this global project.  Their images, as in the slideshow above, are the first added to the gallery.
 
-Anyone with video or images from that event can please submit their content via these options:
+Anyone with videos or photos from that event can please submit their content by following these steps:
 
-* AnonFiles.com + Instructions?
+* Upload the footage somewhere. We recommend [anonfiles.com](https://anonfiles.com). You can also use Google Drive.
 
-* Dropbox + Instructions?
-
-* FTP + Instructions?
-
-* GDrive + Instructions?
-
-* MEGA.nz + Instructions?
-
-* Or contact us to share or find other solutions for large and/or batch file transfers.
+* Send an email to larryswinger(at)armormail.net with "Windsor Freedom Rally" as the subject. Include a link to the footage inside the email.
 
 These videos and images will all be shared online in a 100% free/libré and open-source gallery (details coming soon) and anyone may create and share:
 
@@ -85,4 +78,4 @@ We will also share all the creative projects produced.
 
 - - -
 
-Questions? Contact: http://SaidIt.net/u/JasonCarswell
+Questions? Contact larryswinger(at)armormail.net
